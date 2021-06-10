@@ -1,1 +1,1 @@
-I'm an idiot with a keyboard
+High School student interested in Computer Science
