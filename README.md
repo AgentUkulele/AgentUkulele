@@ -1,1 +1,1 @@
-High School student interested in Computer Science
+College student interested in Computer Science
